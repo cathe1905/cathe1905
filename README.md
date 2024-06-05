@@ -8,7 +8,7 @@ I’m always on the lookout for opportunities to collaborate on open-source soft
 
 Feel free to reach out to me at 📫 [catherinr24@gmail.com](mailto:catherinr24@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/catherin-romero-web-developer).
 
-A little fun fact about me: ⚡ I spent 16 years as a Boy Scout in a Christian Evangelical church, where I mastered Morse code, semaphore alphabet, and an impressive array of knots.   
+A little fun fact about me: ⚡ I spent 16 years in a church youth group, where I mastered Morse code, semaphore alphabet, and an impressive array of knots.   
 
 My pronouns are 😄 she/her, and I look forward to connecting with fellow tech enthusiasts and collaborators.
 
